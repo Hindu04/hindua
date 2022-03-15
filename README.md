@@ -1,1 +1,1 @@
-# hindua
+# hinduakula
